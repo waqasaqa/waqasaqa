@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ...626
 
 <!---
-waqasaqa/waqasaqa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+waqasaqa/waqasaqa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.lj
 You can click the Preview link to take a look at your changes.
 --->
