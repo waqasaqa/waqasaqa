@@ -1,6 +1,6 @@
 qsaw638sfdsf- 👋 Hi, I’m @waqasaqa
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning ...fgb
 - 💞️ I’m looking to collaborate on ...sfsdwer966
 - 📫 How to reach me ...sdf87474
 - 😄 Pronouns: ...4547747452mjhjm85959
