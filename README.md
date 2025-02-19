@@ -3,7 +3,7 @@ qsaw638sfdsf- 👋 Hi, I’m @waqasaqa
 - 🌱 I’m currently learning ...fgb
 - 💞️ I’m looking to collaborate on ...sfsdwer966
 - 📫 How to reach me ...sdf87474
-- 😄 Pronouns: ...4547747452mjhjm85959bdfcxcx26
+- 😄 Pronouns: ...4547747452mjhjm85959bdfcxcx26trg
 - ⚡ Fun fact: ...62611238787w455sdfawwartg6666535462418592
 456dgbgltg255nh5223
 <!---45asdsfd2212.mltyh6+99996+
