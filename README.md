@@ -1,7 +1,7 @@
 gfhhgfgfbfgqsaw638sfdsf- 👋 Hi, I’m @waqasaqaqqq
 - 👀 I’m interested in ...ewr
 - 🌱 I’m currently learning ...fgb
-- 💞️ I’m looking to collaborate on ...sfsdwer96645
+- 💞️ I’m looking to collaborate on ...sfsdwer96645dfgfd
 - 📫 How to reach me ...sdf87474lkjkjlregregrhtgbfjk,erte
 - 😄 Pronouns: ...4547747452mjhjm85959bdfcxcx26trg84488635445cxvcxvc
 - ⚡ Fun fact: ...62611238787w455sdfawwartg66665354624185925485269ghjdfdf
