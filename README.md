@@ -1,6 +1,6 @@
 yiuuiyifsddsfsdjhgfhhgfgfbfgqsaw638sfdsf- 👋 Hi, I’m @waqasaqaqqq
 - 👀 I’m interested in ...ewrdfgfdfdgfgdgdgdf
-- 🌱 I’m currently learning ...fgbfffgjhgjh
+- 🌱 I’m currently learning ...fgbfffgjhgjhewsdsd
 - 💞️ I’m looking to collaborate on ...sfsdwer96645dfgfdjutttyjrfdff
 - 📫 How to reach me ...sdf87474lkjkjlregregrhtgbfjk,ertedfdfvfwerwwewwwrdffewwwqewqwwnhggn47414erttreertrttgrgtrgr
 - 😄 Pronouns: ...4547747452mjhjm85959bdfcxcx26trg84488635445cxvcxvchjhgtytyntynytbgfff884rger
